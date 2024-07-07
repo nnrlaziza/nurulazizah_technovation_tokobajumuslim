@@ -1,2 +1,2 @@
 # nurulazizah_technovation_tokobajumuslim
-Lomba
+Folder Lomba Berada Di Master
